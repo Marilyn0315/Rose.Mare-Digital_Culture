@@ -1,4 +1,4 @@
-# Digital Culture
+# Digital Culture and Data Feminism
 
 ## Dragon Age Fandom
 ### Fandom Discourse
@@ -7,3 +7,4 @@
 ### Baking Communities
 
 ## AI-Generated Nonsense
+
