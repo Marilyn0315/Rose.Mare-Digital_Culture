@@ -64,6 +64,45 @@ https://www.theguardian.com/lifeandstyle/wordofmouth/2010/sep/09/how-to-make-per
       An additional reason for the undercooked, wet texture of brownies in the UK is that American flour absorbs more liquid than UK flour.
       I look forward to trying Felicity's recipe. There is always room for more brownies.*
 
+### Chocolate cake recipe feedback
+
+Zaitgha
+04/29/2007
+*did this recipe for my son's bday and it came out really good*
+
+Eponine
+06/05/2013
+*My grandma must've found this recipe a couple years ago, because that's when she gave it to my family. We love it! However, this recipe doesn't have absolutely PREFECT chocolate frosting that came with the one my grandma gave us, so I thought I'd help out a bit: ½ C Butter/ 2/3 C Cocoa/ 1 Tsp. Vanilla/ 3 C Powdered Sugar/ 1/3 C Milk - Melt butter, stir in cocoa. Alternately add sugar and milk, beating to spreading consistency. If necessary, thin with additional milk. Add vanilla. - There we go! I use this frosting recipe every time, and it's perfect for this cake. Hope I helped!!!*
+
+AUSSIMUM1
+08/24/2007
+*This cake will be printed out as my new basic chocolate cake. Everything about it was nice, I did add a teaspoon of instant coffee to the boiling water and the batter was thin. Baked up perfect - I did line the tin and use oil spray. Tastes better than some expensive box mixes. Wasn't overly moist either, just not dry at all. Thanks. UPDATE: Up the amount of cocoa to 1 cup and make sure it's the best quality. I use a European brand. You can use melted butter if you run out of oil. You can use whipped cream, cocoa powder and icing sugar for a great icing.*
+
+Annie_Luvs_2_cook
+06/18/2007
+*I have joyfully been trying many different cake/frosting recipes from this site and I must say this is about the most moist and delicious I have found! I used this to make cupcakes and what a perfect batter for the task! It's so "runny" you just pour it into the liners. Halve the recipe and you get 12 cupcakes. Fill the liners 3/4 way full. They come out fluffy and very moist- PERFECT! I used the "Rich Chocolate Frosting" from this site and it too was superb. (I wrote a review on it as well.)*
+
+Donna Harmon
+10/13/2006
+*This is the exact recipe that is on the back of the Hershey Cocoa can. I have been using this same recipe for years! So much better than a box mix!* 
+
+roweena
+06/06/2007
+*Absolutely delicious and so EASY to make! We made this for a birthday party just last weekend and made another one last night for ourselves. Perfect with some whipped topping, we added a 1/2 cup of mini chocolate chips to make it even more chocolatey! If you do this, make sure to sprinkle it on top of the batter AFTER you have poured it into the baking pan, let them just sit on the top. Since the batter is thin, mixing them in will cause them to sink to the bottom and stick to the pan as you try to get the cake out.*
+
+Benda G
+05/23/2011
+*I googled to find a chocolate cake recipe for a baking contest, and picked this one for it's simplicity due to my busy schedule. I won! I won with a perfect score!! The greatest thing about this cake is how moist it is.... not just fresh-baked, but even a couple of days later. I am adding this recipe to my recipe box! HINT: I use the shorter baking time with all recipes, subtract 5 minutes, and check the cake by touching with a finger to see if it springs back. What you want is for the cake to spring back but still sound "wet" inside.... Turn off your oven, close the door and let the cake finish its last 5 minutes of bake time. This will allow the cake to set without drying out. Try it!* 
+
+shadykt2
+01/29/2006
+*This recipe is awesome but remember it will only come out as great as the ingredients you use. I used Hershey's cocoa powder because that's what I had on hand but I would recommend using the highest quality cocoa you can afford! The batter IS really thin, I am SO glad that the recipe included that warning because I woulld have thought I did something wrong. Don't worry!* 
+
+robismil
+04/13/2008
+*I found this recipe a little under a year ago, and I can't count how many times I've made it. I will never, I repeat, NEVER make another chocolate cake again! I get asked for the recipe constantly, and friends and family beg me to make it. Tip: I make mine with 100% whole wheat flour and you can't tell the difference AT ALL! If you're looking for the best, most moist and flavorful chocolate cake you've ever had, YOU FOUND IT!*
+
+
       
 
     
