@@ -275,7 +275,233 @@ Anonymous
 11 months ago
 
 I’ve no rating for these brownies.  I am appalled that  this publication would print a recipe encouraging young adults to use marijuana.  I implore you get educated on what today’s high potency THC is doing to our kids. 
-    
+
+
+### French Toast Casserole - Sally's baking addiction - https://sallysbakingaddiction.com/baked-cream-cheese-french-toast-casserole/#tasty-recipes-70955
+
+Ingredients
+1 (12-14 ounce) loaf french bread, sourdough bread, or challah*
+8 ounces (226g) full-fat brick cream cheese, softened to room temperature*
+2 Tablespoons (15g) confectioners’ sugar (do not leave out)
+3 teaspoons (15ml) pure vanilla extract, divided
+8 large eggs
+2 and 1/4 cups (540ml) whole milk
+3/4 teaspoon ground cinnamon
+2/3 cup (133g) packed light brown sugar
+Crumb Topping
+1/3 cup (69g) packed light brown sugar
+1/3 cup (41g) all-purpose flour (spooned & leveled)
+
+1/2 teaspoon ground cinnamon
+6 Tablespoons (85g) unsalted butter, cold and cubed
+optional: maple syrup and/or confectioners’ sugar for topping
+Cook Mode Prevent your screen from going dark
+Instructions
+
+Grease a 9×13-inch baking pan or any 3-4 quart oven-safe dish (pictured) with nonstick spray. Slice then cut the bread into cubes, about 1 inch in size. Spread half of the cubes into the prepared baking pan.
+Using a handheld or stand mixer fitted with a whisk attachment, beat the room temperature cream cheese on medium-high speed until completely smooth. Beat in the confectioners’ sugar and 1/4 teaspoon vanilla extract until combined. Drop random spoonfuls of cream cheese mixture on top of the bread. Layer the remaining bread cubes on top of cream cheese. (I like to make sure some cream cheese is still exposed on top just for looks.) Set aside.
+Whisk the eggs, milk, cinnamon, brown sugar, and remaining vanilla together until no brown sugar lumps remain. Pour evenly over the bread. Cover the pan tightly with plastic wrap and refrigerate for at least 3-4 hours and up to 24 hours. Overnight is best.
+Preheat oven to 350°F (177°C). Remove pan from the refrigerator.
+Prepare the crumb topping: Whisk the brown sugar, flour, and cinnamon together in a medium bowl. Cut in the cold cubed butter with a pastry blender or two forks. Sprinkle the topping evenly over the soaked bread.
+
+Bake uncovered for 45-55 minutes or until golden brown on top. I usually bake it for 45 minutes because I like it softer. Drizzle with optional maple syrup or dust with confectioners’ sugar. Serve warm.
+Cover leftovers tightly and store in the refrigerator for 2-3 days.
+
+Sue says:
+January 20, 2025
+I have begun to turn to Sally’s whenever I need a new, good recipe for company. For this morning’s brunch, I made this casserole. Got it ready last night, put the topping on this morning and popped it in the oven. It was delicious! My husband loves it! So did my company. Thanks for a great, easy recipe!
+
+Briana says:
+January 11, 2025
+I’ve been making French toast casserole for my family’s birthday breakfasts for years. It never occurred to me to add cream cheese, I stumbled across this recipe while on your Pinterest, and I decided to give it a try! We are all glad I did! The cream cheese texture and tanginess makes it a completely different experience. Thank you!!
+
+Brianna says:
+January 2, 2025
+Made this for New Year’s Day brunch with my family. Sooooo good! We had a fruit salad and bacon on the side and it was a 10/10 meal. Will definitely make again.
+
+Amber says:
+December 29, 2024
+I add a little more powdered sugar to the cream cheese filling. This recipe is perfect otherwise. Thanks so much!
+
+Koko says:
+December 28, 2024
+I rarely eat sweets, but made this for Christmas Eve, and it will stay in my memory as the most delicious treat ever! Used sourdough bread (from a bakery) to offset total sweetness, and real maple syrup on top. Served with bacon and coffee…. Who could ask for more! Followed recipe exactly. Make sure to measure bread, so not too dry. Can’t wait for next Christmas! Thank you!!!!
+
+Anna says:
+December 27, 2024
+I have made this twice now and it is unbelievably delicious! The cream cheese flavor and texture are both outstanding, and the streusel on top is the perfect touch! Everyone that tried it had rave reviews! I will definitely continue to make this.
+
+Jenni F. says:
+December 25, 2024
+I made this for Christmas morning and my son loved it so much he boxed up a serving and took it to his friend across town.
+
+Maggie says:
+December 25, 2024
+This went down a treat in my house. The mix of crunchy on top and creamy underneath was just great. Thank you
+
+Megan Waters says:
+December 24, 2024
+I made this several years ago for breakfast Christmas morning and now my kids and husband have to have it every year! It’s easy and delicious! I make a strawberry reduction to go with it!
+
+Rachel W says:
+December 24, 2024
+Hello there!
+I am making this recipe for tomorrow and I went to a local bakery and bought challah bread. I weighed out 14 ounces and cut the bread into cubes, but it only measures out to 8 cups and only makes one layer on the 9 x 13 pan. This bread is very dense and not fluffy so I’m wondering if it’s a problem. I’m afraid if I do another 12 to 14 ounces of bread that it will turn out dry. Any recommendations on what I should do?
+ * Michelle @ Sally's Baking Recipes says:
+   * December 24, 2024
+   * Hi Rachel, the 14 oz loaf that you have will be perfect. We wouldn’t add more.
+
+Mary says:
+December 20, 2024
+So easy. Everyone really enjoyed. Made the blueberry sauce too.
+That added more deliciouness!
+
+LiAnne says:
+December 20, 2024
+Is there any way to male this without the eggs? I’ve made french toast before just using oatmilk and spices and it was good but I’m wondering how bad this would be withoit the eggs? Would egg replacer work or is there something else I could add to do what the eggs do for this?
+ * Beth @ Sally's Baking Recipes says:
+   * December 20, 2024
+   * Hi LiAnne, we haven’t tested it without the eggs or with an egg replacer, so aren’t sure what to recommend. If you are looking for an egg-free brunch recipe, we have this ham potato   casserole. Obviously very different, but still delicious!
+
+Suz g. says:
+January 3, 2025
+Haven’t made this recipe but I do an egg free French toast casserole with chickpea flour (besan) and coconut milk. The trick is to toss the cubed bread all the sauce you make in a bowl, then do the layers as called for in the dish. Otherwise; all the chickpea flour gets layered on top of the bread in the casserole. If done right, it’s delicious! I plan on modifying this recipe to make it egg free next weekend and can report back, if you want.
+
+C. Close says:
+December 18, 2024
+Hi! Any suggestions for cinnamon alternative (allergy).
+
+Thanks!
+ * Stephanie @ Sally's Baking Recipes says:
+  * December 19, 2024
+  * You could simply leave it out, or even use a small amount of nutmeg for a warm, slightly sweet spice.
+
+Jenn says:
+December 18, 2024
+I’ve never been more excited to try a recipe! I’ll be short on time, while making other goodies, so could I cut up croissants instead of making croissant bread?
+  * Trina @ Sally's Baking Recipes says:
+   * December 18, 2024
+   * Hi Jenn, we haven’t tested our baked French toast casserole recipes with croissants, so we can’t offer much advice. Let us know if you give it a try!
+
+S Wright says:
+December 19, 2024
+Croissants are too delicate for this. It turns out mushy.
+Signed,
+Learned the Hard Way
+
+Jenn says:
+December 21, 2024
+Thanks so much for sharing and saving me the frustration!!
+
+Nickie says:
+December 17, 2024
+I have made this twice and it’s absolutely delicious and easy to make. I now have people wanting to pay me to make it for them for their Christmas morning breakfasts. Let’s all keep in mind that I’m not in the catering business but that speaks to the greatness of this recipe.
+  * Trina @ Sally's Baking Recipes says:
+   * December 17, 2024
+   * So glad it’s a hit, Nickie!
+
+Carolyn says:
+December 13, 2024
+Would this recipe cook properly in a crockpot? I would like to make this for an office brunch where oven is not accessible.
+Thank you
+  * Beth @ Sally's Baking Recipes says:
+   * December 13, 2024
+   * Hi Carolyn, You can use this recipe, but use the slow cooker instructions found in the recipe Notes for our pumpkin French toast casserole.
+
+Cheryle says:
+December 11, 2024
+Brought this recipe (tweaked – sugared cranberries and I toasted my bread in the oven first because I didn’t buy it early enough for it to get stale) to a work brunch today and then I had to go print the recipe for a few people.
+
+I have to say, your recipes (and I’ve used many) are well thought out and work if you weight your ingredients properly. Sally’s is my go to when I’m looking for a specific baked item. I appreciate you. I also appreciate the slam dunks I get at work when I bring in treats!
+  * Michelle @ Sally's Baking Recipes says:
+   * December 12, 2024
+   * So glad this was a hit, Cheryle!
+
+Charli says:
+December 11, 2024
+This recipe is AMAZING! It’s become a staple for our family and we love it! I’m bringing it for a Christmas Brunch and want to make it festive and plan on using cranberries. Would berries alone be too tart? Or should I use the cranberry jam recipe from Sally’s Brie puff pastries?
+  * Trina @ Sally's Baking Recipes says:
+   * December 11, 2024
+   * Hi Charli! That’s up to your tastes. You could also add sugared cranberries on top – festive and delicious!
+
+Terry says:
+December 6, 2024
+I have made this, and it is truly delicious. I want to half the recipe to give to my daughter, but I want to use an 9×5 loaf pan. I bought an adorable ceramic one with dog/cat paws. Should it be baked 30 mins then checked for doneness? She will be baking herself since she can’t be with us Xmas morning.
+  * Trina @ Sally's Baking Recipes says:
+   * December 6, 2024
+   * Hi Terry! A loaf pan may not be best for this recipe, since the casserole will be much thicker and the texture will change (less of the topping will get crisp). If you do try it, we are unsure of the bake time needed, but let us know how it goes!
+
+Terry says:
+December 27, 2024
+I just wanted to let you know I tried the 9×5 loaf pan for my daughter. I cut the recipe in half using about 4-cups of challah bread. She brought it home and Xmas morning left it out for about 20 mins and baked for 50 mins. It worked fine.
+
+Farrah Sargent says:
+November 30, 2024
+This recipe is AWESOME!!!!! Thank you for sharing it!!!
+
+Jules says:
+November 19, 2024
+Wow, a crowd pleaser! I added blueberries that I had on hand and needed to use. Amazing! Thank you again for another 5 star recipe!
+
+Cathy T says:
+November 3, 2024
+I buttered the bottom of the pan and under the bread, I added a layer of sliced apples that I had previously prepped with cinnamon and flour and lightly sautéed in butter. Made for a tailgate brunch. It was a hit!
+
+Farah says:
+November 25, 2024
+Did you layer the apples on top of in between the bread? Trying this recipe for thanksgiving brunch and I wanted to add apples
+
+Judy says:
+September 29, 2024
+Can you use slices of bread instead of cubed bread?
+  * Beth @ Sally's Baking Recipes says:
+   * September 29, 2024
+   * Hi Judy, you can! See this recipe for baked apple cider French toast for an example.
+
+Ella says:
+August 27, 2024
+I made this with some cubed homemade cinnamon rolls that came out way to dry. Since the cinnamon rolls already had cinnamon sugar in them I a halved the sugar and cinnamon in the custard mixture. I also added some pecans on top near the end of the bake time. It was great!
+
+anne says:
+August 20, 2024
+hi
+I accidentally put 3 teaspoons of vanilla in the cream cheese. Should I scrap it and start over?
+  * Lexi @ Sally's Baking Recipes says:
+   * August 20, 2024
+   * Hi Anne, the cream cheese mixture may not be quite as thick, but it should be fine.
+
+Colleen R says:
+July 25, 2024
+Wondering if there is nutritional info to go with the recipe
+  * Lexi @ Sally's Baking Recipes says:
+   * July 25, 2024
+   * Hi Colleen, We don’t usually include nutrition information as it can vary between different brands of the same ingredients. Plus, many recipes have ingredient substitutions or optional ingredients listed. However, there are many handy online calculators where you can plug in and customize your exact ingredients/brands. Readers have found this one especially helpful: https://www.verywellfit.com/recipe-nutrition-analyzer-4157076
+
+Rachel Davis says:
+July 6, 2024
+Has anyone tried this with sourdough bread?
+
+Ralph W says:
+August 2, 2024
+I enjoyed this at my friend’s house. It is like eating bread pudding for breakfast. I do not think it needs the maple syrup but that is just me. I have made these kinds of recipes with sourdough bread. It just does not work the way brioche or challah works…or croissant bread, whatever that is. ENJOY IT
+
+Edie says:
+September 2, 2024
+I just assembled mine with a strawberry and cream sourdough bread. Will be baking it tomorrow so will update.
+
+Ellie says:
+October 6, 2024
+I did it with sourdough bread once and I didn’t like it as much as with the other suggested breads. It was just too hard of a bread for me for french toast. Maybe if I had soaked it longer or used fresh sourdough (I used day old leftovers) it would have been better.
+
+Diana says:
+July 4, 2024
+I’ve made this a few times as-is and it’s amazing.
+
+I’m wondering your thoughts on using leftover cornbread instead of French bread?
+  * Michelle @ Sally's Baking Recipes says:
+   * July 5, 2024
+   * Hi Diana, we haven’t tried! Let us know how it turns out if you do.
+
 
 ### AI-Generated Nonsense
 #### The Language of Deception - Justin Hutchens
