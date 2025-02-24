@@ -502,6 +502,10 @@ I’m wondering your thoughts on using leftover cornbread instead of French brea
    * July 5, 2024
    * Hi Diana, we haven’t tried! Let us know how it turns out if you do.
 
+### Statistic on Game Developpers
+
+Something very interesting I read noted that 31% of game developpers are women and (or) non-binary. The video game community is well-known to be a male-dominated space, yet the statistic suggests that a significant portion of this space is filled with both women and those that identify under the LGBTQ+ umbrella. 
+One of the reasons I can see these individuals inclined to video games is that it is a safe storytelling outlet. That is, within the vacuum of a video game, it is often possible to create a character that can overcome insurmountable obstacles and succeed in their endeavors and receive widespread praise and support regardless of their identity, gender, or sexuality. Very obviously, this is not the case in reality. 
 
 ### AI-Generated Nonsense
 #### The Language of Deception - Justin Hutchens
