@@ -508,6 +508,9 @@ Something very interesting I read noted that 31% of game developpers are women a
 One of the reasons I can see these individuals inclined to video games is that it is a safe storytelling outlet. That is, within the vacuum of a video game, it is often possible to create a character that can overcome insurmountable obstacles and succeed in their endeavors and receive widespread praise and support regardless of their identity, gender, or sexuality. Very obviously, this is not the case in reality. 
 
 ### AI-Generated Nonsense
+
+Something I have noticed in the dystopia nightmare that the world is of late, is the heavy presence of AI, whether that be generated images, bots, news articles, etc. I do not want to want to come across as overly supportive of AI because I think it has so many more negative qualities about it as rather than positive. However, a few examples that I have enjoyed are counter-propoganda pieces of AI generated towards current American poltics, such as the memeification of actions taken by Donald Trump, Elon Musk, JD Vance, and Karoline Leavitt. In the face of blatant nationalistic propoganda and lies that are communicated by these individuals, AI generated memes and images that mock these individuals is a small form of protest that is historically typical of counter culture that arises with authoritarian governments (like Black Panther movement in the 60's and Punk movements in the 70's for example). The more negative and dominant side is, of course, the echo chamber of Right propoganda that is created by bots concerning political topics that influence real people. In the same vein, the fake news articles with no real author, fake references, and false information that gets spread around by real people to justify their opinions of real life. 
+
 #### The Language of Deception - Justin Hutchens
 
 # Notes from Coding Workshop
