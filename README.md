@@ -555,6 +555,9 @@ https://vm.tiktok.com/ZMBXvThvS/
 Since the new Hunger Games book has been announced titled Sunrise on the Reaping, there has been an uptick in the interest of the Hunger Games series once again. People have been making fan posts varying from predictions about the story, to direct comparisons with how the dystopic state of the US as it appears in The Hunger Games is concerningly close to the present day US. While the first 3 entries of the series is more focused on the structure of capitalism (the enemy 'state' quite literally being called the Capitol), this text is more focused on propoganda, the mass spread of misinformation, and the problem with eternal compliance. 
 This video specifically is not good, but it is more accessible than instagram. In fact, the Hunger Games merchanidise that the people in the tiktok are wearing is very much out of touch with the anti-capitalist/ultra-consumer and materialism criticisms from the main trilogy. In any case, the fact that people are looking to the Hunger Games series, a series that is concerned with rebellian and revolution in a fascist/authoritarian dictatorship should be raising more eyebrows than it is. Again, Suzanne Collins' timing is immaculate and I would argue is present days George Orwell in terms of how important her text is to the political climate of North America and relevance to our future. 
 
+### I have abandoned baking for the end of the world
+Like a lot of things in my life, researching baking is not at the top of my list right now when there is a literal coup happening in the US. 
+
 # Notes from Coding Workshop
 DH-Workshop-Notes
 Notes for coding DH workshop
