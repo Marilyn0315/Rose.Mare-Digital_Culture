@@ -1,6 +1,6 @@
 # Digital Culture and Data Feminism
 
-# DH Project- Fan Studies in Fanfiction and Heterotopia
+# Context of me - Previous DH Project/interests - Fan Studies in Fanfiction and Heterotopia
 
 Fanfiction, at its core, is content written by fans of a text to which they generally have a lot of passion for. The original source of what the fanfiction is based on varies immensely, for example fanfiction can be inspired by: books, movies, television shows, video games, celebrities, and essentially anything that a person most often enjoys and/or is passionate about. Fanfiction can also be written as a joke or contrarily, which is why I hesitate to prescribe it as purely out of enjoyment or passion. For many, fanfiction is an extension of the original text source that serves as a way to enjoy more content that would otherwise not exist. Similarly, fanfiction is a creative outlet for people to sometimes explore a fictional storyworld in an alternative way to how it is explored in the original source material. 
 
@@ -511,7 +511,36 @@ One of the reasons I can see these individuals inclined to video games is that i
 
 Something I have noticed in the dystopia nightmare that the world is of late, is the heavy presence of AI, whether that be generated images, bots, news articles, etc. I do not want to want to come across as overly supportive of AI because I think it has so many more negative qualities about it as rather than positive. However, a few examples that I have enjoyed are counter-propoganda pieces of AI generated towards current American poltics, such as the memeification of actions taken by Donald Trump, Elon Musk, JD Vance, and Karoline Leavitt. In the face of blatant nationalistic propoganda and lies that are communicated by these individuals, AI generated memes and images that mock these individuals is a small form of protest that is historically typical of counter culture that arises with authoritarian governments (like Black Panther movement in the 60's and Punk movements in the 70's for example). The more negative and dominant side is, of course, the echo chamber of Right propoganda that is created by bots concerning political topics that influence real people. In the same vein, the fake news articles with no real author, fake references, and false information that gets spread around by real people to justify their opinions of real life. 
 
-#### The Language of Deception - Justin Hutchens
+### Gretchen Adler - I want my kids to know what cheeseits taste like - elitest baking 
+https://www.tiktok.com/@thehealthywife/video/7353786984067763498
+In this tiktok, Adler again makes crackers from scratch so that her kids could eat a similar kind of snack without 'poisoning' her children with unhealthy food. Before I dissesct the video, I want to list a lowball rough estimate of how much the items she uses in her kitchen cost:
+-Large food processor and grater: $150
+-Rolling pin: $3
+-Shape cutter: $3
+-Baking paper: $3
+-CHEEZIT RECIPE:
+  16oz raw cheddar cheese, shredded
+  1 cup sourdough discard
+  1 stick or 1/2 cup butter
+  1.5 tsp unrefined salt
+  3 cups whole wheat einkorn flour (approximately 1.5 cups berries, milled)
+
+  1. Put cheese and discard in food processor and blend
+  2. Add chopped cold butter, salt and flour, then blend and pulse.
+  3. Turn dough into bowl and massage to make sure everything is mixed well.
+  4. Cover with cling wrap and refrigerate overnight or up to 2 days to allow to ferment.
+  5. Remove from fridge and allow to come to room temp, may take more than 1 hour.
+  6. Roll out on parchment paper and thin as you can with rolling pin. Transfer to baking sheet. Take a pastry or pizza cutter to make 1” parallel         and perpendicular cuts.
+  7. Sprinkle with sea salt and bake at 375F of approx 18 minutes until gold brown.
+  8. Allow to cool as crackers will harden and crisp up.
+
+The cost would be around $20 for the ingredients, and that is assuming one already has the resources to keep up a sourdough culture. 
+  -Contents and date sticker, meaning she has a printer of some sort, which costs hundreds of dollars
+  -Overall, if a person did not have these resources and wanted to buy them to makes these crackers for their kids, it would cost them around $189, 2 days and 1 hour of prep time, and 18 minutes of cook time. Moreover, Adler produces her own cheese with animals on her property, so she uses raw cheese rather than store-bought, which she would not feed to her children. 
+Besides the elitest attitude of how Adler insists people must feed their children (otherwise parents are poisoining them, as she puts it), a common occurence in recipes is the assumption that everyone has professional kitchen appliances such as stand mixes, food processors, blenders, etc. This might lead to baking being a more common hobby for a certain classification of people based on incame. 
+
+### Meme counter propoganda
+(https://www.threads.net/@elhowieson_/post/DH0BONhSvmV?xmt=AQGzQ3vcD2Lbw79nflCzw9xleviXgo5OXnP2rDavqOZXbw)This video is one example of what I want to touch on in terms of counter propaganda against Trump’s administration. Looking at the very basic meaning of the meme (as the individuals within the video on the Graham Norton show are not relevant to the message of the meme), it is essentially praising Mark Carney for his positive positive political relationship to other world leaders in the face of Trump’s politically isolating tariffs and economic propaganda. Part of Trump’s positionally is attempting to portray the USA as a martyr figure— that other countries such as Canada have been taking advantage for many years. While this is demonstrably false, people aligned within the MAGA following are enthusiastic about his new policies. In any case, what is interesting to me and how this exemplifies as a DH artefact is that this meme is very clearly an example of political activism. What I do not have an answer to is what exactly does this achieve (beyond a sigh/chuckle when a person who agrees watches the video). Because a person’s social media is severely biased according to their interests and curated algorithm, are political memes stuck in a vacuum within the confines of their own political sphere, and if so, do they have any impact on opposing ideologies? I hope they do. 
 
 # Notes from Coding Workshop
 DH-Workshop-Notes
