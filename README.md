@@ -556,7 +556,20 @@ Since the new Hunger Games book has been announced titled Sunrise on the Reaping
 This video specifically is not good, but it is more accessible than instagram. In fact, the Hunger Games merchanidise that the people in the tiktok are wearing is very much out of touch with the anti-capitalist/ultra-consumer and materialism criticisms from the main trilogy. In any case, the fact that people are looking to the Hunger Games series, a series that is concerned with rebellian and revolution in a fascist/authoritarian dictatorship should be raising more eyebrows than it is. Again, Suzanne Collins' timing is immaculate and I would argue is present days George Orwell in terms of how important her text is to the political climate of North America and relevance to our future. 
 
 ### I have abandoned baking for the end of the world
-Like a lot of things in my life, researching baking is not at the top of my list right now when there is a literal coup happening in the US. 
+Like a lot of things in my life, researching baking is not at the top of my list right now when there is a literal coup happening in the US. However, it comes as no surprise to find out that the influencer I have previously critiqued named Gretchen Adler was interviewed by Fox News, and the title of the article reads: "Make America Healthy Again." Part of the reason for critiquing her stems from how she is using her platform to spread misinformation concerning nutrition and shaming parents foe feeding their children processed foods or just food in general from the grocery store. In any case, there is a new reason to pick a fight with her, as described in the Fox News article: 
+https://www.foxnews.com/media/trad-wife-gretchen-adler-women-take-back-homes-kitchens
+         "Adler, a self-described traditional wife and mother, is taking social media by storm with her healthy, homemade recipes and simple 
+          lifestyle. The home chef is pushing back against the "boss babe mentality" and showing women the joy of keeping the home. 
+         
+          "We were pushed out of the home" Adler says. "We were pushed into the workplace, made to believe that we shouldn't be in the home, we 
+           should not be stay-at-home moms, we don't need to raise our children, we can have somebody else do it and we need to go make money. That 
+           is not really the traditional role of a woman. A woman's role is to raise healthy, strong, intelligent children who are our next 
+           generation of world leaders and so now ... women are waking up to the fact that we were kind of sold a lie. We are meant to raise our 
+           children, and we must feed them for optimal health." 
+
+Not only is this out of touch with the realities of the working class population who cannot afford Adler's lifestyle, the statement that women are 'reclaiming the kitchen' and 'pushed out of the home' is pure misogyny and unquivocally ignorant of the women that fought tooth and nail for centuries to be given the rights as men, and even now that has not been fully realized. Moreover, her lines that state children must be fed for optimal health is perfectly fine, but when that is paired with a woman's role is to raise strong, intelligent children who are our next world leaders is laced with eugenics. That is all to say, there is much danger in individuals with large platforms who can spread misinformation so widely. 
+
+
 
 # Notes from Coding Workshop
 DH-Workshop-Notes
