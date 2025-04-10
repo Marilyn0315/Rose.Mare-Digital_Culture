@@ -1,7 +1,8 @@
 # Digital Culture and Data Feminism
 
-#Link to Unessay- hybrid content that a good presentation can serve
-
+# Link to Unessay- hybrid content
+Intro: I think there has been a great shift in focus of my interests in DH, which is increasingly aligned with the American political climate of late. That is, in September 2024, my interests were more focused on DH in relation to video games and online baking forums, but now my attention has completely locked in on the far Right propaganda and counter propaganda in relation to the (second) Trump administration. Moreover, the blatant fascist coup occurring in the United States as well as the struggling breath of their democracy. 
+### https://docs.google.com/presentation/d/1AbnYRFcUg0aRQ0WKR8BL5CRbTv1oM2h5ri6ftKJZBxU/edit?usp=sharing
 
 # Context of me - Previous DH Project/interests - Fan Studies in Fanfiction and Heterotopia
 
